@@ -1,1 +1,1 @@
-# It is test for new memebers AskYou
+# It is test for new members of AskYou
